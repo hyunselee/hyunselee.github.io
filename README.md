@@ -1,1 +1,2 @@
-# hyunselee.github.io
+### 🔗 Connect with me
+- [LinkedIn](https://www.linkedin.com/in/hyunselee)
